@@ -1,5 +1,5 @@
 Hallo, i'm Ayaan, also known as "EARTHIIAN"
-who is the founder/owner of gevox, I littarally have two people working for me xD, and one of them don't even do any work work.
+who is the founder/owner of gevox, I literally have two people working for me xD, and one of them don't even do any work.
 I am currently a student learning how to code and
 you can contact me in discord: EARTHIIAN#8052
 <!---
