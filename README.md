@@ -1,10 +1,8 @@
-I'm bad at math :)
+I'm literally Leonardo DiCaprio
 
-
-*I don't have much in my github yet sadly, more coming soon!*
-
-discord: earthiian (since new username system)
-email: mariolazy123@gmail.com, ayaan.eusufzai@gmail.com
+discord: earthiian
+email: 2048megahertz@proton.me, mariolazy123@gmail.com
+insta: 2048hertz
 <!---
 EARTHIIAN/EARTHIIAN is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
